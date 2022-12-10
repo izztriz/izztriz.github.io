@@ -1,1 +1,0 @@
-# izztriz.github.io
